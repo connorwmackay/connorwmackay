@@ -1,1 +1,1 @@
-I'm a fourth year university student, studying computer science.
+Just finished my final year of studying a BSc (Hons) in Computer Science.
